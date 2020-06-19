@@ -8,3 +8,8 @@ Durch sein großes Wissen in der Magie kann Strange gute, aber auch böse Magie 
 * empathisch
 * mysteriös
 * kraftvoll
+
+Sein Motto lautet stets:
+
+> Besser Thanos zum Frühstück
+> als die Bildzeitung
