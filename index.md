@@ -13,3 +13,5 @@ Sein Motto lautet stets:
 
 > Besser Thanos zum Frühstück
 > als die Bildzeitung
+
+<img src="https://www.google.de/imgres?imgurl=https%3A%2F%2Flive.staticflickr.com%2F6115%2F6304312158_18c1c85775_z.jpg&imgrefurl=https%3A%2F%2Fwww.flickr.com%2Fphotos%2Fchiffheed%2F6304312158&tbnid=DrMs8Jzaw7N8KM&vet=12ahUKEwiN1emyq47qAhWggKQKHRGxDu4QMygGegUIARC2AQ..i&docid=PBpsin-efn5QcM&w=400&h=600&itg=1&q=stephen%20strange&hl=de&ved=2ahUKEwiN1emyq47qAhWggKQKHRGxDu4QMygGegUIARC2AQ"/>
